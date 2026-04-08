@@ -5,3 +5,4 @@ https://github.com/tigrangasparyan04-lgtm/ALGGames.io
 https://discord.gg/HJJx9uzN
 https://www.youtube.com/@HiddenPlayer-t3j
 https://www.youtube.com/@kirieshkaWWW
+https://www.donationalerts.com/r/kirieshka2093
